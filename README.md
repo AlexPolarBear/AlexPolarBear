@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Spring**
 
-- 📫 How to reach me **durn_alex@mail.ru**
+- 📫 How to reach me by mail **durn_alex@mail.ru** or by Telegram 🛩️ **@Alex_PolBeAR**
 
 <!-- <h3 align="left">Connect with me:</h3>
 <p align="left">
